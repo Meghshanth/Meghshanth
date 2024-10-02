@@ -1,4 +1,4 @@
-![Obi-Wan Hello there](https://github.com/user-attachments/assets/8ec44907-3658-4c86-bf17-98e5c01799d9)
+![Obi-Wan Hello there](https://github.com/user-attachments/assets/77feebaa-1a95-433e-b6ef-cb191dfd4fcb)
 ### This is Meghshanth Sara 👋
 
 
